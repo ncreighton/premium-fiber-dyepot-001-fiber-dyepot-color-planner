@@ -1,0 +1,2 @@
+# premium-fiber-dyepot-001-fiber-dyepot-color-planner
+Stop losing your dye recipes in forgotten notebooks. The Fiber Dyepot Color Planner turns your chaotic dye experiments into a searchable, color-coded library, so you never guess a formula again.  This template solves the biggest pain point for fiber dyers: scattered notes and inconsistent results. It centralizes your dye recipes, batch logs, and sw
